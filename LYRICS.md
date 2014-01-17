@@ -50,7 +50,7 @@ Hab mich angepasst
 Und nie ist etwas geschehen  
 Ich hab die nacht gehasst  
 Hab dich und deine Moral  
-In mir eingebrannt  
+In mir eingefang'  
 Doch dadurch wuchs meine Qual  
 Und mein Rachegang
 
